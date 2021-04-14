@@ -5,7 +5,7 @@ A shared transfer is a service that enables the vehicles to travel together, and
 
 ## What does private means?
 The private word provides a high level of comfort, as it is only for the client's disposal. 
-Thus, when we say [https://privatetransfer.istanbul](private transfer Istanbul) it means high quality and exclusive private hire car service.
+Thus, when we say [private transfer Istanbul](https://privatetransfer.istanbul/) it means high quality and exclusive private hire car service.
 
 ## What can an airport transfer company do for you?
 Airport pickups are offered by various companies. It is important to note that there are also other services called shared transfers, which include shared taxis and shared shuttles. These options are typically used for trips that require arrival at an airport or a train station. Shared shuttles transport between hotels and locations near airports or train stations, while shared taxis serve travelers who want to be dropped off at their hotel or at another location near the station.
