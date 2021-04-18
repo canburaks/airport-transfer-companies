@@ -19,8 +19,8 @@ Those are the airport transfer companies that provide one of the best airport tr
 The use of private transfer is also useful in cases of airport transfers, special occasions (wedding, celebrations, etc.), and in business trips, when passengers need their vehicles to be with them all the time.
 
 
-* [Istanbul Airport Transfer Expert](https://istanbultransferexpert.com)
-* [Seablue's Airport Transfer Istanbul](https://privatetransfer.istanbul)
+* [Istanbul Transfer Expert](https://istanbultransferexpert.com)
+* [Private Transfer Istanbul](https://privatetransfer.istanbul)
 * [Istanbul Cruise - Airport Transfers](https://istanbulcruisetransfer.com)
 * [Istanbul Private Transfers](https://air-transfer.com)
 
